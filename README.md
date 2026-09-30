@@ -1,6 +1,6 @@
 ## 𝔖𝔱𝔢𝔭𝔤𝔬𝔡'𝔰 𝔓𝔯𝔬𝔣𝔦𝔩𝔢
 
-<img width="748" height="567" alt="200" src="https://github.com/user-attachments/assets/1ff31079-f7f2-42e1-be38-a86a2e981ff0" />
+<img width="632" height="356" alt="200" src="https://github.com/user-attachments/assets/1ff31079-f7f2-42e1-be38-a86a2e981ff0" />
 
 
 𝑾𝒐𝒓𝒌 𝒉𝒂𝒓𝒅, 𝒑𝒓𝒂𝒚 𝒉𝒂𝒓𝒅, 𝒊𝒔𝒕𝒊𝒓𝒂𝒉𝒂𝒓𝒅.
